@@ -1,4 +1,3 @@
-SAYA GANTENG
 
 apa yang akan dikerjakan
 apa yang sedang dikerjakan
