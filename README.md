@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-Saya Zainal Arifin
+I am Zainal Arifin
